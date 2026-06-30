@@ -1,2 +1,3 @@
 ### Hi there 👋
-тут був Вася
+I'm 21 y.o. IT student 
+LF any job offers
